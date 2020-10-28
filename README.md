@@ -1,5 +1,6 @@
-### Hi there 👋
+### Hi there :vulcan_salute: I'm Wagner 
 
+My Nickname is :vampire: Vampirão / Vamp 
 <!--
 **Francawg/Francawg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
